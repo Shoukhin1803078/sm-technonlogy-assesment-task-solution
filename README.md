@@ -1,0 +1,1 @@
+# sm-technonlogy-assesment-task-solution
